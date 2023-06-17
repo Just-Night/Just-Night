@@ -1,2 +1,2 @@
 # Hi i`m Night
-  - ### Discord: hmm
+  - ### Discord: hmm just find me
